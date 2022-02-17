@@ -31,8 +31,9 @@ Hi, guys
 
 
 Contact Details
- 📲 Contact Number: +91 7013972847
- 📲 WhatsApp Number: +91 7075054788
+
+ 📲 Contact Number: +91 7013972847<br>
+ 📲 WhatsApp Number: +91 7075054788<br>
  You can reach me 📧 guttieranna2940@gmail.com
  
  My Social Media Platorms,
